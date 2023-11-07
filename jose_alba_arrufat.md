@@ -1,1 +1,0 @@
-## Jose Alba Arrufat
